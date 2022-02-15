@@ -1,8 +1,9 @@
-# <a href="https://mamah-muda.web.app/">@Mamah-Muda</a>
-# <a href="https://mamahmuda.page.link/chat">WhatsApp</a>
-# <a href="https://mamahmuda.page.link/tiktok">Tiktok</a>
-# <a href="https://mamahmuda.page.link/line">Line</a>
-# <a href="https://mamahmuda.page.link/youtube">Youtube</a>
-# <a href="https://mamahmuda.page.link/mom">Movie</a>
-# <a href="https://mamahmuda.page.link/messenger">Messenger</a>
-# <a href="https://mamahmuda.page.link/instagram">Instagram</a>
+# <a href="https://hijabi.web.app/">@Hijabi</a>
+# <a href="https://hijabi.page.link/whatsapp">WhatsApp</a>
+# <a href="https://hijabi.page.link/tiktok">Tiktok</a>
+# <a href="https://hijabi.page.link/spotify">Spotify</a>
+# <a href="https://hijabi.page.link/twitter">Twitter</a>
+# <a href="https://hijabi.page.link/youtube">Youtube</a>
+# <a href="https://hijabi.page.link/instagram">Instagram</a>
+# <a href="https://hijabi.page.link/linkedin">Linkedin</a>
+# <a href="https://hijabi.page.link/pinterest">Pinterest</a>
