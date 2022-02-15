@@ -1,10 +1,1 @@
 # <a href="https://hotgirls.web.app/">@Hotgirls</a>
-# <a href="https://hotgirls.page.link/hotgirls">Gallery</a>
-# <a href="https://hotgirls.page.link/whatsapp">WhatsApp</a>
-# <a href="https://hotgirls.page.link/tiktok">Tiktok</a>
-# <a href="https://hotgirls.page.link/spotify">Spotify</a>
-# <a href="https://hotgirls.page.link/twitter">Twitter</a>
-# <a href="https://hotgirls.page.link/youtube">Youtube</a>
-# <a href="https://hotgirls.page.link/instagram">Instagram</a>
-# <a href="https://hotgirls.page.link/linkedin">Linkedin</a>
-# <a href="https://hotgirls.page.link/pinterest">Pinterest</a>
